@@ -26,7 +26,14 @@ Improving Breath Holding
 
 4. Normal running outside the pool will help as well.
 
+5. Four lanes underwater. Stops every pool and dive at own pace.
 
+6. Split into groups of two. One player sits on the bottom 7 meters away from the pool edge. Second player swims down and now the players swap. The emerging player swims to the pool wall and then swims back to the player waiting on the botom. Repeat 5 times (every player should swim 5 times).
+
+7. Split into groups of two. One player swims underwater from wall to 7 meters away and returns to the wall without emerging. Now second player does the same. Continue exercise so that each player swims underwater 5 times. Shorten distance to 5 meters and make a race with other teams of two.
+
+Improving scoring
+=================
 
 
 
